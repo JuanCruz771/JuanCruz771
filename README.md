@@ -26,7 +26,7 @@
 ## 📫 Como me encontrar
 
 - [LinkedIn](https://linkedin.com/in/juan-gabriel-444943341)  
-- [Github](https://github.com/JuanCruz771))  
+- [Github](https://github.com/JuanCruz771)  
 - ✉️ Email: gabrielcruz.juan.771@gmail.com 
 
 ---
